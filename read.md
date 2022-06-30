@@ -1,0 +1,3 @@
+- jinx — he/it
+- furthering my interest in technology
+- eventually.
