@@ -1,4 +1,4 @@
-# JINX!
+# sithis!
 
 idiot furthering his interest in technology
 - eventually.
