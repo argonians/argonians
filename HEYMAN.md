@@ -1,6 +1,6 @@
 # sithis!
 
-idiot furthering his interest in technology
+idiot furthering its interest in technology
 - eventually.
 - probably.
 - i hate zwj sequences
